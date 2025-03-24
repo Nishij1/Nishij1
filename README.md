@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm Nishij Sontakke, the Founder of Digital Door Agency, where we craft stunning websites, graphics, and digital strategies that help businesses grow. With a Diploma in Computer Engineering and experience in responsive design & AI-driven applications, I specialize in delivering custom web solutions that are both visually appealing and result-oriented.
+I'm Nishij Sontakke, the Founder of Digital Door Agency, where we craft stunning websites, graphics, and digital strategies that help businesses grow. With experience in responsive design & AI-driven applications, I specialize in delivering custom web solutions that are both visually appealing and result-oriented.
 
 
 ## 🌐 Socials:
